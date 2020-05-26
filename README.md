@@ -1,0 +1,1 @@
+# Why-Is-long-term-plan-important-for-success-in-business-
